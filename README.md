@@ -1,0 +1,4 @@
+- 👋 Hola, Soy Brayan
+- 👀 Me gustan las computadoras y la Astronomia
+- 🌱 Estudiante de Ingenieria de Sistemas
+- 💞️ Linux GOD
